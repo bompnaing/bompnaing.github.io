@@ -13,5 +13,5 @@ Experience- I love the Smiths.
 
 Age: younger than u - 19.
 
-Educational status- finished GED with the GPA of 4.0
+Educational status- finished GED with the GPA of 4.0.
                     But I have no brain left for IT.
