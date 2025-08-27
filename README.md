@@ -1,17 +1,16 @@
-# bompnaing.github.io
-So what do u wanna know about me?
-Just text me on Instagram, so bored to write a bio now lolll
-Username= bomm5011
-
-Btw, I am Bom, the full name is Bhone Pyae Naing but ig it is hard to pronouce,soooo.
-
-so ok
-Job: I don't know what i am doing with my life.
-
-Experience- I love the Smiths.
+# Bhone Pyae Naing
+>_A short course student, IT department
+>Payap University.
+/>
 
 
-Age: younger than u - 19.
+# Education
+* Finished 10th grade- Dawei BEHS (1)
+* After that, graduated GED with The GPA of 4.0- K Academy
+* Currently studying basic IT in Payap before joining a University in Europe./>
 
-Educational status- finished GED with the GPA of 4.0.
-                    But I have no brain left for IT.
+# Experience
+* Pharmacy assistant for 2 years/>
+
+
+
